@@ -1,4 +1,4 @@
-# Exrecice-Cadavre-Exquis-OlivierKeutgens
+# Exercice-Cadavre-Exquis-OlivierKeutgens
 
 ## **Le pirate des lacs**
 
