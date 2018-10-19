@@ -19,5 +19,8 @@ Descendant de sa montagne, armé de son gourdin à pointes, il rumine et tente, 
 Se demandait le petit Leny alors qu'il s'approchait de la barque trouée qui lui tenait lieu de navire.
 Tourmenté, ce n'est qu'une fois devant le quai vide qu'il réalisa que son bateau avait disparu.
 
-Fin de l'histoire 
+Fin de l'histoire
 > __francesco__
+
+Reouverture de l'histoire
+Ni l'une, ni deux, *Le petit Leny* decida d'utiliser ses supers pouvoirs de code pour repérer son bateau sur sa map interactive ! Son bateau avait été volé par le staff central de *becode.org*
