@@ -17,4 +17,7 @@ Descendant de sa montagne, armé de son gourdin à pointes, il rumine et tente, 
 
 *Le petit Leny :* "Mais comment faire pour accomplir mon rêve dde suivre mon nindo et devenir roi des pirates ?"
 Se demandait le petit Leny alors qu'il s'approchait de la barque trouée qui lui tenait lieu de navire.
-Tourmenté, ce n'est qu'une fois devant le quai vide qu'il réalisa que son bateau avait disparu.  
+Tourmenté, ce n'est qu'une fois devant le quai vide qu'il réalisa que son bateau avait disparu.
+
+Fin de l'histoire 
+> __francesco__
